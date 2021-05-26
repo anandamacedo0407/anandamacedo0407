@@ -1,13 +1,15 @@
-### Hey, I'm Ananda Borrel 👋
+### Oii, Prazer 👋
 
-📚 2nd year of high school  
-⚡ Studying IT at Firjan SENAI  
-📍  I'm from Resende, RJ, Brazil  
-💰 Future economist  
-💗 Passionate about politics  
+📚 2º ano do ensino médio  
+⚡ Cursando TI na Firjan SENAI  
+📍  Resende, RJ, Brasil  
+💰 Futura economista  
+💗 Apaixonada por política  
 
-“Your level of success will rarely exceed your level of personal development  
-because success is something you attract to the person you become ”- Jim Rohn
+✨Eterna aprendiz  
+
+“Seu nível de sucesso raramente excederá seu nível de desenvolvimento pessoal  
+porque o sucesso é algo que você atrai para a pessoa que se torna ”- Jim Rohn
 
 
 
