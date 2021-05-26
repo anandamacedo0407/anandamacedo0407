@@ -6,5 +6,8 @@
 💰 Future economist  
 💗 Passionate about politics  
 
-“Seu nível de sucesso raramente excederá seu nível de desenvolvimento pessoal  
-pois o sucesso é algo que você atrai pela pessoa em que se torna” – Jim Rohn
+“Your level of success will rarely exceed your level of personal development
+because success is something you attract to the person you become ”- Jim Rohn
+
+
+
