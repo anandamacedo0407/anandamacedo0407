@@ -16,3 +16,4 @@ porque o sucesso é algo que você atrai para a pessoa que se torna ”- Jim Roh
 
 [Instagram](https://www.instagram.com/anandamaced0/)  
 [Facebook](https://www.facebook.com/ananda.macedo.0407)  
+[Telegram](https://t.me/Ananda_Macedo)  
