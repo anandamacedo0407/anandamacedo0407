@@ -1,4 +1,4 @@
-### Oii, Prazer 👋
+### Oii, Prazer 👋🏼
 
 📚 2º ano do ensino médio   
 🤝🏽 Presidente do [Interact Club Resende](https://www.instagram.com/interact.resende/)  
