@@ -1,8 +1,9 @@
 ### Oii, Prazer 👋
 
-📚 2º ano do ensino médio  
-⚡ Cursando TI na Firjan SENAI  
+📚 2º ano do ensino médio 
+🤝🏽 Presidente do [Interact Club Resende](https://www.instagram.com/interact.resende/)
 📍  Resende, RJ, Brasil  
+⚡ Cursando TI na Firjan SENAI   
 💰 Futura economista  
 💗 Apaixonada por política  
 
